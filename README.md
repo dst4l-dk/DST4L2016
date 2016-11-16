@@ -141,4 +141,4 @@ Steven Adler will give this final informal keynote while workshop attendees have
 17.00-00.00
 The End
 
-Thanks for coming and enjoy your trip home. We will share the outcome of the workshop with you as soon as possible.
+Thanks for coming and enjoy your trip back home. We will share the outcome of the workshop with you as soon as possible.
